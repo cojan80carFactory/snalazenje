@@ -1,0 +1,2 @@
+# snalazenje
+prvi koraci
